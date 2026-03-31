@@ -169,8 +169,8 @@ Day 3 (Revision)
 
 ## 👨‍💻 Author
 
-**Rasesh Varshney**
-📌 Registration Number: 25BCE10299
+**Ritoriddha Barman**
+📌 Registration Number: 25BCE10854
 
 ---
 
